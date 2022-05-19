@@ -4,5 +4,10 @@
 Hello my name is Xavier Alexander M Orense, I am 15 years old I live in Naga city Bicol in Philippines
 
 # My Hobbies
-  playing basketball with my friends
-  
+ • playing basketball with my friends
+ 
+ • playing video games in my pc and phone
+ 
+ • walking with my friends outside
+	
+ • 
